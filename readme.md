@@ -1,0 +1,2 @@
+O curso em si tem sido bem interessante e maravilhoso. Acho que poderia ter melhorado os tópico das aulas "extras", porque de extra elas não tem nada rs 
+Todos os conteúdos são de extrema relevância e importância para o desenvolvimento da turma.
